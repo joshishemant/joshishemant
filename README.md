@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @joshishemant
-- 👀 I’m interested in exploring and learning new things
+- 👀 I’m interested in exploring and creating novelties
 - 🌱 I’m currently pursuing B. Tech E&TC 
 > [Resume.pdf](https://github.com/joshishemant/joshishemant/files/6997425/Hemant.s.Resume.1.pdf)
  
